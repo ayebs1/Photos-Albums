@@ -1,0 +1,1 @@
+# Photos-Albums: Au momment de joindre ce forum chaque membre partage sa photo, ses contacts, postes et projets actuels. Cet album est une compilation de ces photos introductives mais aussi de celles qui onte ete prises lors des rencontres des membres du forum
